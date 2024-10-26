@@ -12,7 +12,21 @@ You can click the Preview link to take a look at your changes.
 --->
 GANGMAFIA 
 GAGNSTER SQUAD 
-{ISR}
 GANGSTER MAFIA 
 STRAIGHT 
 diplomatic economic finance
+WATHCDOGS 
+007 
+RICH
+GOLD 
+MONEY
+USD 
+EUR
+BTC
+USDT
+SPECIAL 
+MOONLIGHT
+SUNSHINE 
+F(O) 
+PROFESOR 
+MR. JASSION
