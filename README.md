@@ -15,4 +15,4 @@ GAGNSTER SQUAD
 {ISR}
 GANGSTER MAFIA 
 STRAIGHT 
-
+diplomatic economic finance
